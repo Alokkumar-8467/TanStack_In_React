@@ -12,3 +12,10 @@
 
 
 <img width="791" height="800" alt="image" src="https://github.com/user-attachments/assets/36e18184-eaf7-4179-9807-971600a43707" />
+
+
+
+<img width="562" height="779" alt="Screenshot 2025-09-18 000642" src="https://github.com/user-attachments/assets/94acf779-f2c9-4c65-ac6e-538086c7cf30" />
+<img width="1371" height="746" alt="Screenshot 2025-09-18 000652" src="https://github.com/user-attachments/assets/77c3239c-649f-40e1-9c42-ef77e06ecff7" />
+
+
